@@ -1,0 +1,1 @@
+# APKS_KI-410_Khyzhavskyi_Ivan
